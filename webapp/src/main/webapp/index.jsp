@@ -1,1 +1,1 @@
-<h1>assalamu aleykum wa rhmatullah</h1>
+<h1>assalamu aleykum wa rahmatullah</h1>
